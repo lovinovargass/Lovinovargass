@@ -4,9 +4,8 @@
 ![17699555737277907604305709724021](https://github.com/user-attachments/assets/a7d68dce-8e77-49b8-8eea-b2278f1f4cf1)
 <img width="107" height="53" alt="17699561135335416883043133840001" src="https://github.com/user-attachments/assets/7f386b2b-4951-4946-9ce3-2e72c06494d0" />
 
+I LOVE ROMANO.
 
 ![17699561274407765154523978964762](https://github.com/user-attachments/assets/4b593159-e73e-430d-92ba-0d457f61c20d)
-we love romano
-
-
 ![1769956099323490336579531649459](https://github.com/user-attachments/assets/07b7fe39-3397-47c6-b16f-150f3317a2d5)
+
